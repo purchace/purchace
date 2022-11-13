@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @purchace
+- 👀 I’m interested in electrnoic music (❤️ fred again...)
+- 🌱 I’m currently learning how to express creativity through BUILDING
+- 💞️ I’m looking to collaborate on exciting new projects
